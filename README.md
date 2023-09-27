@@ -10,7 +10,7 @@ Need I say more? This is the only free game I have ever spent a single cent on, 
 
 2. Minecraft
 
-I liek mods :) My recommendation is not to buy from the official site and instead to buy a vpn-activated key. [Minecraft.net](https://minecraft.net/)
+I liek mods :) My recommendation is not to buy from the official site and instead to buy a vpn-activated key. [Website](https://minecraft.net/)
 
 3. ULTRAKILL
 
